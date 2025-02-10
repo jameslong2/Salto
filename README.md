@@ -6,7 +6,7 @@ pero al fin he llegado,</br>
 al final de este barranco.</br>
 </br>
 Me pregunto que habra abajo,</br>
-zaezas y espinas,</br>
+zarzas y espinas,</br>
 o el agua de un lago?</br>
 </br>
 Mucha niebla para saber nada,</br>
